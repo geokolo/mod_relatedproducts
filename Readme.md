@@ -1,4 +1,4 @@
-# Related products to this detailed product
+# Related products to detailed product
 
 ## About
 
